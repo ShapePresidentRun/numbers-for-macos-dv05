@@ -1,4 +1,4 @@
-
+Get the ultimate Numbers for macOS helper with automatic Numbers for macOS Helper | real-time-collaboration + macro-recording. Featuring real-time-collaboration and
 
 
 
